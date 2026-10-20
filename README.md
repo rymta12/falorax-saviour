@@ -1,1 +1,1 @@
-just download apk and enjoy
+just download apk and enjoy.
